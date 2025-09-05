@@ -1,2 +1,2 @@
-# pujithaa
-my name is pujitha
+i m d good
+i m d bad
